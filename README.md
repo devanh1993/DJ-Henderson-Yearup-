@@ -9,6 +9,6 @@ My name is Devan Jovan Henderson, I go by DJ. I am currently a newly Google cert
 
 [Linkedin](https://www.linkedin.com/in/devan-henderson-9a503b251/)
 
-**YearUp**
+**YearUp-**
 *Why is it exciting?*
 
