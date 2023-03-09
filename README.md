@@ -16,3 +16,8 @@ My name is Devan Jovan Henderson, I go by DJ. I am currently a newly Google cert
 
 ### *I am most proud of earning the first Professional of week in my learning community*
 
+
+
+
+![Teamwork makes the dream work.](Sports.jfif)
+
