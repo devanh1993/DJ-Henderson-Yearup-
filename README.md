@@ -1,4 +1,4 @@
-# DJ-Henderson-Yearup-
+# DJ Henderson & Year up
 Quick description of myself and my experience with the Yearup program. 
 
 
