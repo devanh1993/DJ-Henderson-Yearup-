@@ -11,4 +11,7 @@ My name is Devan Jovan Henderson, I go by DJ. I am currently a newly Google cert
 
 **YearUp-**
 *Why is it exciting?*
+- Yearup has provided me with an oppertunity to grow. 
+- Second item
+- Third item
 
