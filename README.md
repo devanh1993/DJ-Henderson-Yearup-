@@ -15,8 +15,7 @@ My name is Devan Jovan Henderson, I go by DJ. I am currently a newly Google cert
 - Yearup has been challenging but on the other side of those challenges I have found competence. It is exciting to know this I have the ability to learn so much more.
 
 ### *I am most proud of earning the first Professional of week in my learning community*
-
-
+---
 
 
 ![Teamwork makes the dream work.](Sports.jfif)
